@@ -1,5 +1,4 @@
 # calicocatrecords
-Calico Cat Records
 
 Home to the independent record label Calico Cat Records, since 2012.
 
